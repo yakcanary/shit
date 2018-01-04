@@ -1,0 +1,4 @@
+- https://www.kucoin.com/#/vote
+- https://www.binance.com/vote.html
+- https://twitter.com/poloniex
+- https://bitcointalk.org/index.php?topic=1674315.0
